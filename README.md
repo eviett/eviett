@@ -1,0 +1,3 @@
+- 👋 Hi, I'm a work account for @eslachance !
+- 👀 Don't mind me I'm just there to make commits better
+- 📫 I'm not reachable here or for work, you can safely ignore my existence ;)
